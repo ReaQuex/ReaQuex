@@ -1,5 +1,5 @@
 # Welcome to my profile, here you'll be able to check on all of my current and previous projects!
-# 🐱‍👤🐱‍👤🐱‍👤
+# 🍖👌💀
 ![GIF is lost](giphy.gif)
 <!--
 **ReaQuex/ReaQuex** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
